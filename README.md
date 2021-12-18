@@ -1,3 +1,5 @@
+<img width="373" alt="Screen Shot 2021-12-18 at 11 17 13" src="https://user-images.githubusercontent.com/78768949/146644191-b0931a1f-8b91-4494-94b3-e0cf2fb82b36.png">
+
 # Hi 👋, I'm Victoria Casal
 
 
